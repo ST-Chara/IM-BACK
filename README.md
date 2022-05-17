@@ -18,4 +18,9 @@ FUCK!
 
 
 Mindustry i LOVE you!!!!!!!!
+
 NEVER see again TEEWORLDS!!!!!!!!!!!!!!!!!!!!!!!!!!!!!1
+
+I don't understand why I used to like playing this game, so fucking weird.
+
+I HATE YOU ALLLLLLLL
