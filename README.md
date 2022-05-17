@@ -14,3 +14,8 @@ Hate list:
 Maybe more than it, but i forgot xd.
 
 FUCK!
+
+
+
+Mindustry i LOVE you!!!!!!!!
+NEVER see again TEEWORLDS!!!!!!!!!!!!!!!!!!!!!!!!!!!!!1
