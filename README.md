@@ -9,7 +9,7 @@ Hate list:
 - 一坨萌新
 - liar
 - Ethereal
-- 王子BOOM
+- 王子BOOM (Maybe not that bad, but he is so **annoying**)
 
 Maybe more than it, but i forgot xd.
 
